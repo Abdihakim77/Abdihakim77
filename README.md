@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Abdihakim77
+- 👀 I’m interested in data entry
+- 📫 you can me by sending an email abdihakimkassim0@gmail.com
